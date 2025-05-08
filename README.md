@@ -2,7 +2,7 @@
 - 👀 I’m interested in Skibi toilets very much. i know them very well as myself !
 - 🌱 I’m currently learning farting silently beacuse it is very necessary life skill or achivment , which we cant live without it !
 - 💞️ I’m looking to collaborate on air
-- 📫 How to reach me ? well , i suppose to call me
+- 📫 How to reach me ? there's no way :(
 - 😄 Pronouns: Make AMERIMA GREAT AGGGAAAAIIIIN !!!!! 🦅🦅🦅
 - ⚡ Fun fact: Cheering for Team Spirit 🐉
 
